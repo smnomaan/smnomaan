@@ -8,4 +8,3 @@
 - 📫 How to reach me: smnomaan@utexas.edu
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like to cook!
--->
